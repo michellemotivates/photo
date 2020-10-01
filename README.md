@@ -1,2 +1,2 @@
-# photo
-Photography by Michelle Andreassen
+# Michelle Andreassen Photography
+Capturing Simple But Significant
